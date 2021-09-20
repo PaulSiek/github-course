@@ -7,3 +7,6 @@ Repositório teste
 
 
 Saiba mais
+
+
+Gostou do curso? Quer mais?
